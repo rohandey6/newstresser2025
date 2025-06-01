@@ -2,7 +2,7 @@
 
 Best stresser | booter 2025 very powerfull and with multibypass methods
 
-Link : https://susstresser.sbs/
+Link : https://susstresser.click/
 
 -Stable Power
 -99% UpTime
